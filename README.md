@@ -1,5 +1,5 @@
 # 💫 About Me:
-🛠 I’m currently working on<br><br>Building high-converting Shopify & Shopify Plus stores, optimizing performance, CRO, and scaling eCommerce brands through smart design and paid advertising.<br><br>👯 I’m looking to collaborate on<br><br>eCommerce brands, Shopify development projects, conversion-focused landing pages, and performance marketing campaigns.<br><br>🤝 I’m looking for help with<br><br>Scaling premium eCommerce brands, networking with ambitious founders, and exploring advanced AI workflows for business automation.<br><br>⚡ Fun fact<br><br>I can design, develop, market, and edit content for an entire eCommerce brand single-handedly.
+🛠 I’m currently working on<br><br>Building high-converting Shopify & Shopify Plus stores, optimizing performance, CRO, and scaling eCommerce brands through smart design and paid advertising.<br><br>👯🤝 I’m looking to collaborate on <br><br>eCommerce brands, Shopify development projects, conversion-focused landing pages, and performance marketing campaigns.<br><br> <br>⚡ Fun fact<br><br>I can design, develop, market, and edit content for an entire eCommerce brand single-handedly.
 
 
 ## 🌐 Socials:
